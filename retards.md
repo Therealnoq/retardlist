@@ -14,3 +14,5 @@ List of retards :D
 655920028423553041 : Demo(aka Tyranny, aka Harley Davis), everyones favorite cowboy paster
 
 978270449303695360 : nowel, c++ client crashes on inject for being in the wrong timezone
+
+666607792047783952 : Itsryder, countless cases of tardism, doesnt know why he got retard role then spams all the owners dms.
