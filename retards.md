@@ -10,3 +10,5 @@ List of retards :D
 967748086359293993 : Siddhant, we all know him.
 
 824306618194985002 : Spinyfish, mint "dev", so retarded he doesnt know whats triggering his GL errors
+
+655920028423553041 : Demo(aka Tyranny, aka Harley Davis), everyones favorite cowboy paster
