@@ -1,6 +1,10 @@
 # retardlist
 List of retards :D
 
+451921701899599874 : brett, retarded cringe edater and self proclaimed content creator
+
+623880098507915294 : noq, tranny femboy that dates brett
+
 987531228523663440 : Blissful, fake autoblock flagged on matrix.
 
 965088957517922384 : Creida, nef fanboy, weed "developer"
