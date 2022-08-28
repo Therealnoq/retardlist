@@ -20,3 +20,5 @@ List of retards :D
 978270449303695360 : nowel, c++ client crashes on inject for being in the wrong timezone
 
 666607792047783952 : Itsryder, countless cases of tardism, doesnt know why he got retard role then spams all the owners dms.
+
+971051159852810240 : Chazed(Phase), both his clients were memeware pastes (why you would paste a 2 year old client I dont know?). He adamantly denied this, then threw his own friend under the bus and claimed that his friend did it, not him. However as evidenced by all his clients being blatantly pasted from Memeware this claim is likely a cover.
