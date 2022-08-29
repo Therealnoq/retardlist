@@ -22,3 +22,5 @@ List of retards :D
 666607792047783952 : Itsryder, countless cases of tardism, doesnt know why he got retard role then spams all the owners dms.
 
 971051159852810240 : Chazed(Phase), both his clients were memeware pastes (why you would paste a 2 year old client I dont know?). He adamantly denied this, then threw his own friend under the bus and claimed that his friend did it, not him. However as evidenced by all his clients being blatantly pasted from Memeware this claim is likely a cover.
+
+731584111759589546 : Eviate, Created fake autoblock that flags every anticheat, failed at making the vanilla fly give the player flight
